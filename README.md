@@ -1,0 +1,2 @@
+# Nyambui
+Amezaliwa kwao tumjue
